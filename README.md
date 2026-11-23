@@ -1,0 +1,2 @@
+# MPI-5-ASAS-1-PEND-PANCASILA
+Berisi soal soalPN
